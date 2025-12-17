@@ -1,0 +1,1 @@
+https://github.com/yandex-sucks/zakrivayuschiy-teg-ad/tree/main
